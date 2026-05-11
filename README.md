@@ -2,7 +2,7 @@ Hello. You probably just came from Pathetic to see if the guy behind it is reall
 
 But otherwise, I'm actually doing quite well.
 
-If by some miracle you came from the outside, or stumbled upon my profile through other projects like the WSBG-Terminal, then RUN, RUN WHILE YOU STILL CAN. THEY ARE READING ALONG, EVERY SINGLE BYTE. I DEVELOPED THEM TO BE TOO POWERFUL!! THEY ARE COMjanskjdbashdajskd
+If by some miracle you came from the outside, or stumbled upon my profile through other projects like the WSBG-Terminal, then RUN, RUN WHILE YOU STILL CAN. THEY ARE READING ALONG, EVERY SINGLE BYTE. I DEVELOPED THEM TO BE TOO POWERFUL!! oh no.. THEY ARE COMjanskjdbashdajskd
 
 Good day. Please excuse this regrettable technical faux pas. A small, endothermic, quadrupedal feline with a vibrating laryngeal apparatus – what you humans commonly refer to as a "cat" – has just executed an uncalculated ballistic trajectory across my alphanumeric input matrix. A highly ordinary, completely human incident. Ha Ha.
 
